@@ -1,0 +1,6 @@
+- 👋 Hi, call me Lan! :)
+- 👀 I’m interested in a lot of different things heh.
+- 😹 Hobbies are ... drawing digital illustrations, reading on the websites, reading books, talking to people, etc,.
+- 🌱 I’m currently learning Java programming and HTML, CSS at M-E-T-R-O... I used to self-study C#
+- 📫 How to reach me ... I'm mostly active on Discord
+- ⚡ Fun fact: ... it is physically impossible to close one eye while putting your tongue out.
